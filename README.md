@@ -1,4 +1,4 @@
-## Olá! eu me chamo Wadna Martins, seja bem vindo. :)
+## Olá! seja bem vindo. :)
 
 
 <div align="center">  
